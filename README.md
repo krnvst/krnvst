@@ -1,1 +1,1 @@
-![kornev](kornev.gif)
+![krnvst](krnvst.gif)
