@@ -1,1 +1,1 @@
-![krnvst](krnvst.gif)
+![krnvst](krnv.gif)
